@@ -1,4 +1,4 @@
-### Hi there 👋 ![DALL·E 2023-04-03 18 51 02 - Capibara en un ordenador, pixel art](https://user-images.githubusercontent.com/109298575/229586380-56178b47-9a12-41c8-8c4e-dabc34f73be0.png)
+### Hi there 👋 
 
 
 <!--
